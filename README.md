@@ -1,1 +1,0 @@
-# Arcenal-Therese-Andrei-C
